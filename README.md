@@ -1,1 +1,1 @@
-# Symbl.ai's-Hackathon-Project named as Simply or Simplicity App by me.
+# Symbl.ai's-Hackathon-Project named as Simply or Simplicity App .
